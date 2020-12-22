@@ -1,0 +1,2 @@
+1. Heat oven to 425°F. Heat medium cast-iron skillet on medium-high. Season steak with 1/2 teaspoon each salt and pepper. Add oil to skillet, then add steak, garlic, and rosemary and cook until steak is browned, about 3 minutes per side.
+2. Transfer skillet to oven and roast until steak is at desired doneness, 3 to 6 minutes for medium. Transfer steak to cutting board and let rest at least 5 minutes before slicing. 
